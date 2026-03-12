@@ -1,1 +1,0 @@
-# projeakisi.md
